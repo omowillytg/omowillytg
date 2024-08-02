@@ -2,7 +2,7 @@
 - 👀 I’m interested in website design
 - 🌱 I’m currently learning Webflow
 - 💞️ I’m looking to collaborate on freelancing projects
-- 📫 How to reach me: On all platforms at omowillytg
+- 📫 How to reach me: [linktree.com/omowillytg](https://linktr.ee/omowillytg)
 - 😄 Pronouns: He
 - ⚡ Fun fact: Jiggy
 
